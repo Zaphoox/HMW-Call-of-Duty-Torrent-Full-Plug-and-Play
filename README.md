@@ -1,4 +1,7 @@
 # HMW-Call-of-Duty-Torrent-Full-Plug-and-Play
+
+[![Watch the video](https://img.youtube.com/vi/6vZkoeu87xY/0.jpg)](https://www.youtube.com/watch?v=6vZkoeu87xY)
+
 HMW Mod - https://hmw-mod.com/ - Horizon MW <br>
 <hr>
 
